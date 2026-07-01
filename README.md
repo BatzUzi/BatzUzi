@@ -1,3 +1,2 @@
-(˶ˆᗜˆ˵)
-1#NuziaShipper ! 🤯
-![This is a image](https://i.postimg.cc/SRWzy1pL/4f0cc792d822280e0097482d10f409f3-webp.webp)
+ok ! 🤯
+![This is a image](https://i.postimg.cc/dQWw6tkN/GVcqc-Lg-Xs-AACu4Q.jpg)
