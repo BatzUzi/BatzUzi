@@ -1,2 +1,2 @@
-they are so cute ohmygosh 😳 . 🐶🦇 ❤︎⁠
-![This is a image](https://i.postimg.cc/WbTr535h/GCy7l-QDb-QAACkc-K.jpg)
+bro what 😳 . 🐶🦇 ❤︎⁠
+![This is a image](https://i.postimg.cc/3rzTZn6s/IMG-20260824-121327.jpg)
